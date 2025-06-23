@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://17chiguabudayang.pages.dev/">17吃瓜</a>
 
-点击访问：<a href="https://heiliaochiguada.pages.dev/">吃瓜</a>
+点击访问：<a href="https://heiliaochiguada.pages.dev/">黑料大事记</a>
 
 点击访问：<a href="https://91chiguahei.pages.dev/">9I免费吃瓜</a>
 
@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://heiliaohongling.pages.dev/">91吃瓜</a>
 
-点击访问：<a href="https://hj-251.pages.dev/">黑料网</a>
+点击访问：<a href="https://hj-251.pages.dev/">今日黑料</a>
 
 点击访问：<a href="https://hj-258.pages.dev/">海角社区</a>
 
@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://jinrichigua01.pages.dev/">今日吃瓜</a>
 
-点击访问：<a href="https://91chiguazhongxin.pages.dev/">91吃瓜</a>
+点击访问：<a href="https://91chiguazhongxin.pages.dev/">51视频网</a>
 
 点击访问：<a href="https://xiazaianzhuang.pages.dev/">51app</a>
 
